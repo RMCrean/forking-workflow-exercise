@@ -1,4 +1,17 @@
-Instructions
+#### ingredients
+
+- 1 and 1/2 cups (180g) graham cracker crumbs (about 12 full sheet graham crackers)
+- 1/4 cup (50g) granulated sugar
+- 5 Tablespoons (71g) unsalted butter, melted Cheesecake
+- four 8-ounce blocks (904g) full-fat cream cheese, softened to room temperature
+- 1 cup (200g) granulated sugar
+- 1 cup (240g) full-fat sour cream, at room temperature
+- 1 teaspoon pure vanilla extract
+- 2 teaspoons fresh lemon juice (optional, but recommended)
+- 3 large eggs, at room temperature
+
+
+#### Instructions
 
 Preheat oven to 325F (160C).
 
